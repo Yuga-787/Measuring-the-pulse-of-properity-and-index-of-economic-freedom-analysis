@@ -1,0 +1,1 @@
+# Measuring-the-pulse-of-properity-and-index-of-economic-freedom-analysis
